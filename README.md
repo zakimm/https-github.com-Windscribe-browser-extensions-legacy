@@ -1,0 +1,1 @@
+# https-github.com-Windscribe-browser-extensions-legacy
